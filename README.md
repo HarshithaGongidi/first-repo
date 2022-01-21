@@ -1,1 +1,1 @@
-Harshitha Gongidi, Graduating in spring 2022.
+Harshitha Gongidi, Graduating in spring 2022
